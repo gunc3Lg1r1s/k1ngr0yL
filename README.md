@@ -21,6 +21,5 @@
 
 <p>⭐ <strong>Kingroyal ailesine katılın, krallar gibi kazanmaya başlayın!</strong></p>
 
-<p>İletişim: <a href="https://t.me/byseoking" style="color: #ffd700; text-decoration: underline;">@byseoking</a></p>
 
 <meta name="description" content="Kingroyal bahis platformu ile lüks ve yüksek kazançlı bahis deneyimi. VIP oranlar, özel promosyonlar ve 7/24 destek!">
